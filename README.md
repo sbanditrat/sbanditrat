@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything!
 - 📫 How to reach me: sherrybanditrat@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am a nurse looking for a career change.
+- ⚡ Fun fact: I am a nurse looking for a career change
 -->
